@@ -1,3 +1,1 @@
-# Eastjun
-# Westjun
-# Main Page
+1. 쇠고기는 핏물제거하고 다집니다.
